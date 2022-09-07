@@ -30,22 +30,3 @@ Love computer stuff ever since saw a computer, ⛳ Love to spend my 24h with cod
 </div>
 
 ###
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-https://visitor-badge.glitch.me/badge?page_id=jwenjian.visitor-badge
